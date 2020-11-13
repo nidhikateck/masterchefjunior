@@ -1,0 +1,4 @@
+recipe
+
+- Preheat oven to 350°. In a large bowl, cream shortening, butter and sugar until light and fluffy, 5-7 minutes. Add eggs, 1 at a time, beating well after each addition. In another bowl, whisk flour, baking powder and salt; add to creamed mixture alternately with buttermilk, beating well after each addition. Transfer to a 12-in. cast-iron or other ovenproof skillet.
+- For streusel topping, in a small bowl, mix flour, sugar, cinnamon and allspice; cut in butter until crumbly. Sprinkle over batter. Top with strawberries. Bake until center is puffed and edges are golden brown, 50-60 minutes. Serve warm with whipped cream.
